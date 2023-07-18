@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **guptavagisha312@gmail.com**
 
-- ⚡ About Me **I am an enthusiastic and diligent individual, driven by a strong desire to expand my knowledge and skills. One of my greatest assets is my ability to quickly grasp new concepts and learn new things efficiently. I thrive on taking on fresh challenges and eagerly embrace opportunities to explore emerging technologies.Throughout my college experience, I have developed a profound interest in web development.**
+- ⚡ About Me **I am an enthusiastic and diligent individual, driven by a strong desire to expand my knowledge and skills.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
