@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **guptavagisha312@gmail.com**
 
-- ⚡ About Me **I am an enthusiastic and diligent individual, driven by a strong desire to expand my knowledge and skills.**
+- ⚡ About Me : **I am an enthusiastic and diligent individual, driven by a strong desire to expand my knowledge and skills.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
